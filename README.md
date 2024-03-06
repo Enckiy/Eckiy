@@ -8,7 +8,7 @@
 - ⚡ Fun fact: ...
 --->
 
-Ecky (Or Eckiy/ Eckyy in some cases) :3 
+Ecky (Or @Eckiy/ Eckyy in some cases) :3 
 Digital artist, animator and a wannabe game creator!
 
 <!---
