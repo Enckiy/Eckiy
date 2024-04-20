@@ -8,7 +8,7 @@
 - ⚡ Fun fact: ...
 --->
 
-- Ecky (Or Eckiy/ Eckyy in some cases)
+- Ecky (Or Enckiy)
 - Digital artist, animator and a wannabe game creator!
 
 
