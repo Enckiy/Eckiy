@@ -8,14 +8,11 @@
 - ⚡ Fun fact: ...
 --->
 
-  ∧,,,∧
- (• ⩊ •)
-|￣U U￣￣￣￣￣￣￣￣￣|
 - Ecky (Or Enckiy)
 - Digital artist, animator and a wannabe game creator
 - Currently working on mods & art 
-- I'm learning thingys
- ￣￣￣￣￣￣￣￣￣￣￣￣
+- I'm learning things
+ ദ്ദി/ᐠ｡‸｡ᐟ\
 <!---
 Eckiy/Eckiy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
