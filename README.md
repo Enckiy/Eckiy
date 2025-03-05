@@ -9,8 +9,13 @@
 --->
 
 - Ecky (Or Enckiy)
-- Digital artist, animator and a wannabe game creator!
-
+- Digital artist, animator and a wannabe game creator
+- Currently working on mods & art 
+- I'm learning thingys
+                           ╱|、
+                          (˚ˎ 。7  
+                           |、˜〵          
+                          じしˍ,)ノ
 
 <!---
 Eckiy/Eckiy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
